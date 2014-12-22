@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-¶ A funerall oratyon made the xiiii. day of January by John Hoper, the yere of our saluation, 1549. 
+
 1. ¶ A Preface to the texte.
 
 #####Body#####
